@@ -10,4 +10,4 @@
 
 这些资源站专注于提供高质量的国产模特一区二区视频在线观看，涵盖丰富的影片分类和内容。用户可通过详细的影片信息，如演员介绍、时长及分辨率，方便地筛选自己喜欢的视频。平台支持高清播放，并根据网络状况智能调整画质，确保观看体验流畅稳定。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangtho20250709/dangtho10 ）</span>
